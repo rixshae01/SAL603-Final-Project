@@ -14,4 +14,4 @@ professional sports leagues (NBA, NFL, NHL, MLB, EPL)?​
 statistical output or with consistent performance sustained across
 multiple seasons?​
 
-Youtube Presentationn Link: https://youtu.be/NIOslEbl6Mo
+Youtube Presentation Link: https://youtu.be/NIOslEbl6Mo
